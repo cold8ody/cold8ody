@@ -4,7 +4,7 @@
 </p>
 The boy who doesn't care any perspective about him.
 
-#### connect
+#### CONNECT
 Telegram: [@cold8ody](https://t.me/cold8ody)  
 X: [@cold8ody](https://x.com/cold8ody)  
 GitHub: [@cold8ody](https://github.com/cold8ody)  
